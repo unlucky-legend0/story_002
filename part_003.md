@@ -2,4 +2,4 @@
 ### [他们广州结婚公司员工][就不会]被[李洪志照片][反对].
 ### 和李洪志照片作对，找死！
 
-![master_Li_high](https://github.com/user-attachments/assets/589924b2-ccf3-4378-9f8d-be7442185d72)
+![master_Li_high](https://cn-text.github.io/view/master_Li_high.jpg)
